@@ -1,1 +1,2 @@
-# amenokagaseo.github.io
+# 6969420.xyz
+Shirogane Noel.
