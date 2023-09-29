@@ -1,0 +1,1 @@
+# amenokagaseo.github.io
